@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MercedesRamallo
-- 👀 I’m interested in IT Profiles
+- 👀 I’m interested in IT Profiles. Always Sourcing and doing HeadHunting; Providing opportunities. 
 - 🌱 I’m IT Recruiter
-- 📫 How to reach me mm.ramallo@gmail.com
+- 📫 How to reach me: mm.ramallo@gmail.com / mramallo@100positiva.com.ar
 - 😄 Pronouns: Mechi
 
 
